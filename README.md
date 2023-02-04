@@ -1,4 +1,4 @@
-I try to make new things for me everyday :happy:
+I try to make new things for me everyday!
 live page: https://teo2823.github.io/voyage-landing-page/
 
 UI Design:
